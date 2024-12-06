@@ -1,1 +1,1 @@
-Soy novato en este mundo tan basto de conocimiento en informática ❤️
+Hola me llamo Takuma ⚙️
